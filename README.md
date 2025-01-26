@@ -2,7 +2,14 @@
 
 El video filtrado de Olivia Romano y Mike, ex participantes de La Isla de las Tentaciones también conocido como Ana y Fran o Ana Luiza y Miki León, está causando revuelo en redes sociales como Reddit, X (antes Twitter) y Telegram.
 
-Desde que comenzó a circular el rumor de una grabación íntima entre ambos, los internautas han mostrado un creciente interés por descubrir qué es lo que realmente muestra el metraje.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 El contenido de este video ha generado gran controversia. En él, la pareja aparece en una situación claramente subida de tono, lo que ha desatado un intenso debate sobre la privacidad y la ética digital.
 
